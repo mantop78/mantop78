@@ -1,4 +1,4 @@
-sabato 7 dicembre, aeroporto, direzione Istanbul, presento il passaporto e biglietto, 
+sabato 7 dicembre 2019, aeroporto di Orio, direzione Istanbul, presento il passaporto e biglietto, 
 
 poliziotto di frontiera: motivo del viaggio?
 
