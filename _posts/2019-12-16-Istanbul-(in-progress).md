@@ -16,6 +16,8 @@ Atterrati, controllati e timbrati ci portiamo all'esterno dell'aeroporto dove ci
 
 Il traffico dall'areoporto all'hotel è decisamente all'altezza di una città con sedici milioni di abitanti, la guida aggressiva e serrata del nostro autista mi fa venire in mente uno spartano nelle fila dei 300 di Leonida durante la battaglia delle Termopili, eccolo che approfitta di ogni spazio indicativamente piano per accorciare le distanze, nessuna remora: corsie di emergenza, autogrill, benzinai, rotonde basse, e che, se messo alle strette, si atteggia come un animale indomito e selvaggio rinchiuso in una gabbia facendo saettare gli abbaglianti, sfiorando i paraurti altrui, chiudendo implacabilmente ogni possibile passaggio a quelli che seguono.
 
+Il paeseggaio dal finestrino scorreva simile a tante altre città mentre l'autoradio suonava una [canzone](https://youtu.be/IXkmtTDGJeI "At Kadehi Elinden - Deniz Seki") dopo circa 20 minuti finalmente appare un indizio inconfutabile, un minareto, l'aereo non aveva fatto un cerchio ma era andato da x a y e y era un paese islamico!
+
 
 
 
